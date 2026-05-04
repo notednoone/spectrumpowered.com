@@ -1,1 +1,0 @@
-# spectrumpowered.com
